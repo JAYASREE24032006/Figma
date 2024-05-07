@@ -177,6 +177,8 @@ THANK YOU
 
 ![image](https://github.com/JAYASREE24032006/Figma/assets/144360800/60a796ab-47d5-410a-b3c0-d33fcb25f437)
 
+![image](https://github.com/JAYASREE24032006/Figma/assets/144360800/1b433a13-fcae-46a8-9015-96f256768201)
+
 ![image](https://github.com/JAYASREE24032006/Figma/assets/144360800/f1758e83-4a88-40f4-b6ca-383355ff65a8)
 
 ![image](https://github.com/JAYASREE24032006/Figma/assets/144360800/495bd30d-cb69-4b79-896f-c73eb21e91b4)
